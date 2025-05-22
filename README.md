@@ -1,1 +1,1 @@
-Starting programmer in the University of Oulu.
+Computer Science student of Oulu University
